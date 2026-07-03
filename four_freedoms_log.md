@@ -1,0 +1,2 @@
+- 2026-07-03: Luxottica heir wants control of the empire (email date: 2026-06-30)
+- 2026-07-04: LVMH eyes HYROX (email date: 2026-06-30)
