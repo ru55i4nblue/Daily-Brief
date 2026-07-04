@@ -1,0 +1,1 @@
+- 2026-07-05: Luxottica heir wants control of the empire (email date: 2026-06-30)
