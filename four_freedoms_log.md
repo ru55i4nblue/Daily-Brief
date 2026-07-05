@@ -1,1 +1,2 @@
 - 2026-07-05: Luxottica heir wants control of the empire (email date: 2026-06-30)
+- 2026-07-05: Ferrari's CMO steps down amid Luce debacle (email date: 2026-06-30)
