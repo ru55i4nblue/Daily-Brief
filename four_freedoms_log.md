@@ -1,0 +1,2 @@
+- 2026-07-09: Loro Piana fights to own the white sole (email date: 2026-07-07)
+- 2026-07-10: Unilever weighs a bid for Thorne (email date: 2026-07-07)
