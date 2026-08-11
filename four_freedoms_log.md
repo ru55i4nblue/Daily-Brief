@@ -1,1 +1,1 @@
-- 2026-08-12: Thorne gets swallowed up (email date: 2026-08-09)
+- 2026-08-12: Nike's recovery slide, decoded (email date: 2026-08-09)
