@@ -1,0 +1,2 @@
+- 2026-08-14: Thorne gets swallowed up (email date: 2026-08-09)
+- 2026-08-15: The Rolex correction is complete (email date: 2026-08-09)
