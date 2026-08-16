@@ -1,0 +1,5 @@
+- 2026-08-13: Guggenheim Abu Dhabi, finally (email date: 2026-08-09)
+- 2026-08-14: Thorne gets swallowed up (email date: 2026-08-09)
+- 2026-08-15: The Rolex correction is complete (email date: 2026-08-09)
+- 2026-08-16: Burberry takes over the V&A (email date: 2026-08-09)
+- 2026-08-17: The collapse of Harvey Nichols (email date: 2026-08-16)
