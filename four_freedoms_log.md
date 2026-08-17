@@ -1,0 +1,1 @@
+- 2026-08-18: Brunello Cucinelli is all in on AI (email date: 2026-08-16)
