@@ -1,0 +1,3 @@
+- 2026-08-17: The collapse of Harvey Nichols (email date: 2026-08-16)
+- 2026-08-18: Brunello Cucinelli is all in on AI (email date: 2026-08-16)
+- 2026-08-19: The death of the airline lounge (email date: 2026-08-16)
