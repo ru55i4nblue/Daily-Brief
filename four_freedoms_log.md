@@ -1,0 +1,2 @@
+- 2026-08-19: The death of the airline lounge (email date: 2026-08-16)
+- 2026-08-20: The collapse of Harvey Nichols (email date: 2026-08-16)
