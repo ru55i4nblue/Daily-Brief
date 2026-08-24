@@ -1,0 +1,1 @@
+- 2026-08-25: American Express is cutting credit limits (email date: 2026-08-23)
