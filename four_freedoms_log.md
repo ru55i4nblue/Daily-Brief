@@ -1,0 +1,4 @@
+- 2026-09-08: Is your Oura actually doing anything? (email date: 2026-09-06)
+- 2026-09-09: Why St Kitts wants your fingerprints (email date: 2026-09-06)
+- 2026-09-10: Is your Oura actually doing anything? (email date: 2026-09-06) [repeat — all headlines previously covered]
+- 2026-09-11: George Lucas's billion-dollar museum (email date: 2026-09-06)
