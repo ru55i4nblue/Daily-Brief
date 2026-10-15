@@ -1,0 +1,2 @@
+- 2026-10-15: Zurich and Tokyo top the housing bubble list (email date: 2026-10-11)
+- 2026-10-16: Is Djokovic back? (email date: 2026-10-11)
