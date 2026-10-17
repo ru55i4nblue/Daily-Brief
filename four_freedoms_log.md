@@ -1,0 +1,1 @@
+- 2026-10-18: Zurich and Tokyo top the housing bubble list (email date: 2026-10-11)
